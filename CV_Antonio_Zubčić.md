@@ -153,7 +153,7 @@ Adobe (Lightroom, Photoshop, Premiere Pro)| | | | Microsoft Teams
 * Iskustvo rukovođenja i organizacije humanitarnih događaja tijekom 2018. i 2019. godine sa kolegama iz gimnazije
 ## 20. Volontiranje
 * Volontiranje u sklopu programa volontiranja Gimnazije Jurja Barakovića
-* Dom za starije "Sfinga" te odjel pedijatrije u bolnici
+* Dom za starije i nemoćne osobe Zadar te odjel pedijatrije u bolnici
 * Zadar
 * Kroz 2018. godina
 ## 21. Vozačka dozvola
